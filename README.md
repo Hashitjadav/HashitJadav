@@ -6,5 +6,5 @@
  📫 You can Get in Touch with
 
 - Email: Hashitjadav56@gmail.com
-- LinkedIn: hashitjadav
-- GitHub: Hashitjadav
+- LinkedIn: [Hashit jadav](https://www.linkedin.com/in/hashit-jadav-29b1192a9/)
+- GitHub: [Hashitjadav](https://github.com/Hashitjadav)
